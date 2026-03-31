@@ -13,9 +13,10 @@
 <img width="592" height="645" alt="image" src="https://github.com/user-attachments/assets/4946746e-b580-46e5-b577-5780890576ea" />
 
 
-## Tabulation
+![WhatsApp Image 2026-03-31 at 1 35 57 PM](https://github.com/user-attachments/assets/d66bbadb-3202-4749-99bf-d74b371e530e)
 
-## Graph
+
+![WhatsApp Image 2026-03-31 at 1 35 58 PM](https://github.com/user-attachments/assets/e2692d8d-12f4-46dd-bf15-585856769330)
 
 <img width="693" height="167" alt="image" src="https://github.com/user-attachments/assets/b1dcf583-cd07-4a28-8aad-9a4a8c82e5d9" />
 
