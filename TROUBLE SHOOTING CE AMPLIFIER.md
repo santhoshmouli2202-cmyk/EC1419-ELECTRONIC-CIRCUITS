@@ -6,8 +6,9 @@
 <img width="885" height="633" alt="image" src="https://github.com/user-attachments/assets/1eb504bf-ffbd-45a7-8ede-d0593601d20a" />
 
 
-## Tabulations 
+![WhatsApp Image 2026-03-28 at 7 31 34 PM](https://github.com/user-attachments/assets/28cccb41-aff0-439a-b44a-b33b2e7a9a10)
 
-## Semilog Graph
+
+![WhatsApp Image 2026-03-28 at 7 31 34 PM (1)](https://github.com/user-attachments/assets/e59f28d8-c8b3-4295-9a03-7009cc5bc402)
 
 <img width="845" height="246" alt="image" src="https://github.com/user-attachments/assets/f02add25-358b-4b00-902c-8ad7d06fe7ec" />
