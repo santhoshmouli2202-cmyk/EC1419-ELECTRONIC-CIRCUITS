@@ -24,10 +24,7 @@
 
 <img width="520" height="416" alt="image" src="https://github.com/user-attachments/assets/c8e67646-bb9d-4bf3-a4c9-6ba57b0d80f3" />
 
-![WhatsApp Image 2026-03-28 at 7 31 34 PM](https://github.com/user-attachments/assets/28cccb41-aff0-439a-b44a-b33b2e7a9a10)
-
-
-![WhatsApp Image 2026-03-28 at 7 31 34 PM (1)](https://github.com/user-attachments/assets/e59f28d8-c8b3-4295-9a03-7009cc5bc402)
+<img width="1600" height="749" alt="image" src="https://github.com/user-attachments/assets/099a0949-0b0f-4a93-abab-1b3c51d1ea16" />
 
 
 
